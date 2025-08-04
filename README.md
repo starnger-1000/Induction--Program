@@ -1,2 +1,2 @@
 # Induction--Program
-##Yuvraj Singh, ECE
+Yuvraj Singh, ECE
