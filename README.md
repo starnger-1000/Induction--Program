@@ -19,7 +19,7 @@ Then The Principal, Dr. Sehijpal Singh told us about the colleges rich history a
 
 After the inauguration the students were sent to see their respective departments with the faculty members who told us about where the labs,libraries,classes etc were
 
-## It was a very inspiring and interesting first day of the college
+It was a very inspiring and interesting and this was the end of the first day of the college
 
 # Day 2 - 1 August 2025
 
