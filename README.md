@@ -24,3 +24,24 @@ It was a very inspiring and interesting and this was the end of the first day of
 # Day 2 - 1 August 2025
 
 The second day was as interesting as first and there was more as our very first lecture was given by Dr. Priya Darshini on UHV-'universal human values' it was both interesting and interactive as she told us about how that the ultimate goal wasnt just physical things it was happiness and told us to live in harmony with both ourselves and others
+
+# Day 5 - 6 August 2025
+As we continue or journey through the induction programme it is becoming more interesting,interactive and knowledgeable 
+
+For our very first lecture it was by Dr. Parminder Singh the dean of student welfare and this was also scheduled in auditorium He told us about the whole college and where are the places and how many are there it was knowledgeable as we get to know about the college and its hostel thoroughly 
+
+And the next lecture was by Mr. Manpreet Singh on fitness for engineers He told us about to take proper diet and do some exercise.He told us to never take steroids and drugs he also asked us to take an oath to never take drugs.It was very interesting as everyone was interacting with himAnd the next was our first physics class it was our first meeting with our physics teacher Prof. Jaspreet Singh He told us about our physics first semester syllabus and where to find it and the next lecture was P2P by our seniors who taught us basic of C++
+
+At the end of the day it was very helpful and knowledgeable day
+
+# Day 6 - 7 August 2025
+
+Today was a day i recalled and learned many things
+
+At the start of the day we started with physics lecture with Prof. Jaspreet Singh where we were able to recall derivatives and learn about scalar and vector field and more 
+
+After this it was maths lecture with Prof. Sandeep Kaur Gill she made us recall about calculus matrix and much more
+
+Then we went to the auditorium where it was an interactive lecture with Dr. Lakhvir Singh Khana who gave us many useful insights such as the website swayam.gov.in  where we created our accounts and were introduced to NPTEL. He also told us about his visions of his club and it was very interesting and interactive class
+
+Then to our next lecture was by Dr. Jasvir Singh Grewal the incharge of NSSIt was started by shabad Kirtan byvour seniors which are also member of NSS then he showed us video on about how birds are affected by plastic thrown by humans then we did activity where a ball was thrown to choose 2 students from auditorium and task was to make each other laugh and he told us it was tough to make others laugh and easy to make them cry.Then for the final students of NSS did standup comedy to refresh the student.
