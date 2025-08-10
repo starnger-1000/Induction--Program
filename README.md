@@ -45,3 +45,10 @@ After this it was maths lecture with Prof. Sandeep Kaur Gill she made us recall 
 Then we went to the auditorium where it was an interactive lecture with Dr. Lakhvir Singh Khana who gave us many useful insights such as the website swayam.gov.in  where we created our accounts and were introduced to NPTEL. He also told us about his visions of his club and it was very interesting and interactive class
 
 Then to our next lecture was by Dr. Jasvir Singh Grewal the incharge of NSSIt was started by shabad Kirtan byvour seniors which are also member of NSS then he showed us video on about how birds are affected by plastic thrown by humans then we did activity where a ball was thrown to choose 2 students from auditorium and task was to make each other laugh and he told us it was tough to make others laugh and easy to make them cry.Then for the final students of NSS did standup comedy to refresh the student.
+
+# Day 7, 8 August 2025
+Today we visited the workshop and the people were distributed in groups in different workshops
+
+We were 11 people in the workshop which included of ECE and EE and we were sent to welding workshop where thy told us about different metals like ferrous and non ferrous and how different metals can be joint and what methods we can join 
+
+We were here for 2 Hours and they also told us about which notebook and uniform to use and this ends the day
