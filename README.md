@@ -25,6 +25,16 @@ It was a very inspiring and interesting and this was the end of the first day of
 
 The second day was as interesting as first and there was more as our very first lecture was given by Dr. Priya Darshini on UHV-'universal human values' it was both interesting and interactive as she told us about how that the ultimate goal wasnt just physical things it was happiness and told us to live in harmony with both ourselves and others
 
+# Day 3 - 4 August 2025
+As we continue it was the session by causmic club who organised the program and they told us about many things like what do thir club do and much more, then we had our lecture with Dr. Priya Darshani Madam on univarsal human values and it was our second lecture where we were taught about why do we need happiness and difference between ecxitement and happines and this was an interactive session
+
+After break we had  Our very first English lecture with prof. Nisha where we introduced ourselves one by one infront ans she taught us about how to properly introduce ourselves and then it was our P2P lecture where we were taught of basics of C++ by our seniors and it was a Very great and knowlegable day
+
+# Day 4 - 5 August 2025
+on this day our classes started from 1:30 pm and our first lecure was of Motor Sports where we were taught by the head of this club Mr.Gautam Murria and it was a very fun classes as we talked about f1 and moto sports and they had a fascinate presentation and it was also very interactive and then presenting the digital marketing club Dr. Amit kamra told us about what their club does and their vision it was also a very great lecture
+And Then for the end we had lecture by mrs. Shaffy makkar on millets super food where she taught us about many fascinating things about millets and different kinds of millets i never heard of and was also told about how to cook them
+This day was quite special as we learened about things which maints our health
+
 # Day 5 - 6 August 2025
 As we continue or journey through the induction programme it is becoming more interesting,interactive and knowledgeable 
 
@@ -44,7 +54,7 @@ After this it was maths lecture with Prof. Sandeep Kaur Gill she made us recall 
 
 Then we went to the auditorium where it was an interactive lecture with Dr. Lakhvir Singh Khana who gave us many useful insights such as the website swayam.gov.in  where we created our accounts and were introduced to NPTEL. He also told us about his visions of his club and it was very interesting and interactive class
 
-Then to our next lecture was by Dr. Jasvir Singh Grewal the incharge of NSSIt was started by shabad Kirtan byvour seniors which are also member of NSS then he showed us video on about how birds are affected by plastic thrown by humans then we did activity where a ball was thrown to choose 2 students from auditorium and task was to make each other laugh and he told us it was tough to make others laugh and easy to make them cry.Then for the final students of NSS did standup comedy to refresh the student.
+Then to our next lecture was by Dr. Jasvir Singh Grewal the incharge of NSS It was started by shabad Kirtan byvour seniors which are also member of NSS then he showed us video on about how birds are affected by plastic thrown by humans then we did activity where a ball was thrown to choose 2 students from auditorium and task was to make each other laugh and he told us it was tough to make others laugh and easy to make them cry.Then for the final students of NSS did standup comedy to refresh the student.
 
 # Day 7, 8 August 2025
 Today we visited the workshop and the people were distributed in groups in different workshops
@@ -52,3 +62,23 @@ Today we visited the workshop and the people were distributed in groups in diffe
 We were 11 people in the workshop which included of ECE and EE and we were sent to welding workshop where thy told us about different metals like ferrous and non ferrous and how different metals can be joint and what methods we can join 
 
 We were here for 2 Hours and they also told us about which notebook and uniform to use and this ends the day
+
+# Day 8,11 august 2025
+Today on the starting of the day we were taught about canva by our seniors then for our next class we had with our phy teacher he taught us about many things which were also connected to our syllabus
+
+Then we had our very first lecture of engg. drawing and graphics and first we had introductoins then we started with what are the material required and in what ratio to write alphabets on graph and much more 
+## workshop - Welding
+then we had our workshop class and our sir told us aboul many things about welding and then he taught us to use grinder and how to handle the sharp edge after grinding and then we tried to do this ourselves and this was wonderful and exciting
+
+# Day 9, 12 august 2025
+Today at the starting we had our first economics class which was then cancelled for id card formation procedure and then after this we had our physics class where we went to the physics lab and performed the experiment on how after increasing the distance the radius of laser also increases 
+
+And after the break we had our PPS class it was our first PPS class and we introduced ourselves and we were taught about basics of parts of computer,main sources and more 
+Today was an interesting day
+
+# Day 10,13 august 2025
+Today our first class was of workshop
+## Workshop-welding
+on our very first class our sir was absent and a different sir came and taught us about how the workshops works and how the marks are divided Then it was our physics lecture where we continued where we previously left
+
+After break we had our engg drawing and graphics class where we were taught how to write and how to use drafter
